@@ -1,9 +1,12 @@
 # Andrei Nekrashevich
 
 ## Contact Info
-*Location: Belarus, Minsk*
-*Email: nekrashevich.andrei@gmail.com*
-*Phone: +375-29 850-80-47*
+*Location: Belarus, Minsk*  
+
+*Email: nekrashevich.andrei@gmail.com*  
+
+*Phone: +375-29 850-80-47*  
+
 *[Linkedin](https://www.linkedin.com/in/andrei-nekrashevich-60aa4873)*
 
 ## About Myself
